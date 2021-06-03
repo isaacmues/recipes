@@ -26,7 +26,7 @@ Sift in the flor and baking powder.
 Add the ground cloves.
 Add a pinch of salt and mix.
 
-Put the mix in the basin cover with buttered baking parchment and
+Put the mix in the basin and cover with buttered baking parchment and
 tinfoil.
 Steam for 1.5 hours.
 
